@@ -1,0 +1,2 @@
+# discord-syinkaku
+Donate Me :|
